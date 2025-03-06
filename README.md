@@ -6,7 +6,6 @@ Hi, I'm Dipak! 👋
 
 📫 Connect with me:
 GitHub: (https://github.com/DIPAK-555)
-LinkedIn: (https://linkedin.com/in/
-dipakpakhira)
+LinkedIn: (https://linkedin.com/in/dipakpakhira)
 
 🚀 Always learning, always buildin
